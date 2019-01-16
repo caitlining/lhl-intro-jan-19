@@ -1,5 +1,5 @@
 # Jim BJorkes
-![Picture of Jim](https://chimp.net/groups/jim-bjorkes-fire-ice-flight-centre-wish-trek)
+![Picture of Jim](https://www.linkedin.com/in/jim-bjorkes-54097615/)
 
 ## I was born in...
 a hospital
